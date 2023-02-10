@@ -1,1 +1,1 @@
-# samarthya hello samruddhi
+# samarthya
